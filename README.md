@@ -3,7 +3,7 @@
 Experienced Banking Professional with a Passion for Data Analytics | Driving Business Success through Insights and Innovation
 
 
-## 🌟 About Me ! ![image](https://github.com/RajishNair09/RajishNair09/assets/115383187/443e1ecd-5cf4-4d68-a3da-1ae7d5d5610c)
+## 🌟 About Me !
 
 
 
