@@ -3,7 +3,9 @@
 Experienced Banking Professional with a Passion for Data Analytics | Driving Business Success through Insights and Innovation
 
 
-## 🌟 About Me
+## 🌟 About Me ! ![image](https://github.com/RajishNair09/RajishNair09/assets/115383187/443e1ecd-5cf4-4d68-a3da-1ae7d5d5610c)
+
+
 
 With over a decade of experience in the banking industry, I have developed my skills as a service specialist, banker, and financial expert. Now, I am excited to leverage my expertise and transition into the dynamic field of data analytics.
 
