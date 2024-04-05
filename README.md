@@ -3,9 +3,7 @@
 Experienced Banking Professional with a Passion for Data Analytics | Driving Business Success through Insights and Innovation
 
 
-## 🌟 About Me !
-
-
+## 🌟 About Me ! 
 
 With over a decade of experience in the banking industry, I have developed my skills as a service specialist, banker, and financial expert. Now, I am excited to leverage my expertise and transition into the dynamic field of data analytics.
 
